@@ -1,1 +1,0 @@
-# blocco-esercizi-0
